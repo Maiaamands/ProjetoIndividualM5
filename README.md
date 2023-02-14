@@ -1,1 +1,1 @@
-# ProjetoIndividualM5
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=900&size=21&duration=5001&pause=1001&color=F74CB4&background=354BFF00&width=434&lines=Projeto+Individual+M5)](https://git.io/typing-svg)
